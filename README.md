@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning and exploring new things 
 - 🌱 I’m currently learning different programming languages 
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me chandkumari1911@gmail.com
+- 📫 How to reach me chaandkumari09@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
